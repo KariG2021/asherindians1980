@@ -1,1 +1,0 @@
-# asherindians1980
